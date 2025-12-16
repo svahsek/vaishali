@@ -1,0 +1,3 @@
+- I need a marketing plan for keshavs.com
+- It should be seperate plan for linkedin and seperate foronline PR
+- I needit for 6 months messaging,4 days a week 
